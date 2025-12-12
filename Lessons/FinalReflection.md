@@ -1,1 +1,5 @@
 Final Reflection:
+
+Over the time of taking this course, IST 110 has helped me build a strong foundation in understanding how technology works and how it impacts our everyday lives. Throughout the different activities, tough or easy, I gained hands on experience with technological concepts which will help me in my future technology related field of work. The discussions between my peers were also valuable, exposing myself to different perspectives and insights from different people, which gave me the chance to think more critically and expand further on my own ideas for each lesson, helping me to deepen my understanding aswell. The ZyBook readings were a good source of information, which provided clear explanations and examples which supported the material which we were learning each week. This helped me reinforce key concepts, and also giving me additional context to the activites and discussions, ultimately making it easier for me to understand.
+
+Overall, the activites, disccusions, readings, and this course helped me to grow in knowledge, as well as how I think about and approach technology in my everyday life.
